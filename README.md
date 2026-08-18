@@ -1,3 +1,0 @@
-Personal Cite
-
-JaYzZ95
